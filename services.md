@@ -13,7 +13,7 @@ Wave a magic wand. Tell us what you want to see. We'll make it be.
 - Startup Consulting
 - Candidate Interviewing
 
-What else do you need?
+What else do you need? Contact us.
 
 
 
